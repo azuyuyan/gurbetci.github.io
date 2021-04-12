@@ -1,1 +1,0 @@
-# gurbetci.github.io
